@@ -1,2 +1,2 @@
-# martinlaskowski.com
+# opt-compendium.com
 
